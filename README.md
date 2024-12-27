@@ -13,3 +13,5 @@ https://pkljurusanmplbkotacimahi.blogspot.com/2024/12/085624371576magang-akuntan
 
 https://pkljurusanmplbkotacimahi.blogspot.com/
 
+https://www.edocr.com/v/ombo236e/parizpkl/085624371576pkl-bidang-akuntansi-bandung-baratkegi
+
